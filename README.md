@@ -8,3 +8,4 @@ Puedes contactarme en:
 * Web: mcardi.com
 * LinkedIn: /juanchodavid54
 * Mail: admin@mcardi.com
+* Instagram: /ux.mcardi
